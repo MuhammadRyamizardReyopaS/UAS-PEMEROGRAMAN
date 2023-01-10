@@ -5,7 +5,7 @@
 
 # LINK YT
 
-  [KLIK DISINI](https://youtu.be/3eAM7TLJmpo)
+  [KLIK DISINI](https://youtu.be/lrGuxlXb8wA)
   
 ## LINK PDF
 
